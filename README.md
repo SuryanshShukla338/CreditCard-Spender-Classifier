@@ -67,4 +67,4 @@ Banks and financial institutions often segment their customers to identify high-
 
 **Suryansh Shukla**  
 M.Sc. Economics(Public Policy) | Data & Policy Enthusiast  
-[LinkedIn](https://www.linkedin.com/in/suryansh-shukla)  
+[LinkedIn]www.linkedin.com/in/suryansh-shukla-986b32291
